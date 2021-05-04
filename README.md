@@ -6,4 +6,4 @@ There's no point in acting surprised about it.
 All planning charts and demolition orders have been on display at your local planning department in Alpha Centauri for 50 of your Earth years, so you've had plenty of 
 time to lodge any formal complaint and it's far too late to start making a fuss about it now.....What do you mean you've never been to Alpha Centauri? 
 Oh for heaven's sake, mankind, it's only 4 light years away.
-I'm sorry, but it can't be bothered to take an interest in local affairs, that's your own lookout. Engergize the demolition beams.
+I'm sorry, but it can't be bothered to take an interest in local affairs, that's your own lookout. Engergize the demolition beams.....
